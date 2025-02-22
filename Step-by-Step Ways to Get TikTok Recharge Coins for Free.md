@@ -3,6 +3,8 @@ Step 1: Participate in TikTok Challenges and Events
 TikTok often runs special challenges and events where users can earn
 free recharge coins by completing tasks like:
 
+Click To Get Free Coins = https://graph.org/TiTok-Free-Recharge-Coins-02-22
+
 Creating specific types of content Engaging with specific hashtags
 Collaborating with other users
 
