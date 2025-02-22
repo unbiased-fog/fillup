@@ -6,6 +6,8 @@ streams, and unlocking special features within the app. These coins can
 be purchased with real money or earned through certain methods in the
 app. 2. How can I get Free TikTok Coins?
 
+Get Link = https://allresources.xyz/tiktokcoins.html/
+
 While TikTok doesn't typically give free coins directly, there are some
 ways to earn free TikTok Coins or get rewards that can be used to buy
 them:
