@@ -6,6 +6,8 @@ buy properties, and perform other actions. The \"free dice\" offer gives
 players the opportunity to roll dice for free, often through special
 in-game events or rewards. 2. How can I get Free Dice in Monopoly Go?
 
+Get Link -https://sites.google.com/view/free-dice-monopoly-go-no-verif/
+
 Daily Rewards: Log in every day to claim daily rewards, which often
 include free dice rolls. Special Events: Participate in time-limited
 events, challenges, or promotions where you can earn free dice rolls.
