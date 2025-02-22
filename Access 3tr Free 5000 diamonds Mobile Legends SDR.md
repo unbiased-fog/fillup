@@ -5,6 +5,8 @@ Bang. They are used to purchase skins, heroes, emotes, battle passes,
 and other exclusive items in the game. 2. How can I get Free Diamonds in
 Mobile Legends?
 
+Get Link - https://allresources.xyz/mobilelegends.html/
+
 While Diamonds can typically be purchased using real money, there are a
 few ways you can earn free Diamonds in Mobile Legends:
 
